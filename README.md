@@ -16,7 +16,7 @@ Ok now click on Discussions and your on!
    * No NSFW
    * Follow github rules
    * And use designated categories
-   * NOW ADDING `PARTNER` TO YOUR SERVER
+   * NO ADDING `PARTNER` TO YOUR SERVER
 
 **That's all**
 
