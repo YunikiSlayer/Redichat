@@ -1,3 +1,4 @@
+![wLWmqfNMAAAAASUVORK5CYII=.png](https://github.com/YunikiSlayer/Dischat/assets/64114458/a64a9361-4dad-47b8-834d-e44d36d6cc33)
 # Dischat
 **It begins on dischat!**
 
