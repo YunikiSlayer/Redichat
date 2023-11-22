@@ -1,4 +1,4 @@
-
+![20231122_211234_0000.png](https://github.com/YunikiSlayer/Redichat/assets/64114458/23a2ea2f-2313-48df-93a2-f3670c42bda3)
 # Redichat
 **Like any over social media but worse!!**
 
