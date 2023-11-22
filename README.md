@@ -23,6 +23,7 @@ Ok now click on Discussions and your on!
 
 **That's all**
 
-**-Dischat CEO**
+**-Rediacto CEO**
+**-Rediacto Marketing**
 
 
