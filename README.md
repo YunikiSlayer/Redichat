@@ -24,6 +24,8 @@ Ok now click on Discussions and your on!
 **That's all**
 
 **-Rediacto CEO**
+
 **-Rediacto Marketing**
 
+# Owned by Rediacto
 
